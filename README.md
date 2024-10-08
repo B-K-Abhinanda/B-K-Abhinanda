@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a Data Analyst!
+Data Analyst | Business Analyst!
 
 
 ## 🌐 Socials:
